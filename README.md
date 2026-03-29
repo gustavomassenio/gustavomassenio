@@ -1,4 +1,4 @@
-<img width="1024" height="1024" alt="ChatGPT Image 12 de out  de 2025, 15_32_37" src="https://github.com/user-attachments/assets/1f6df694-8f74-4351-8b4e-c4027c321cc2" />
+
 <p align="center">
  
 </p>
